@@ -8,4 +8,4 @@ I do hardware stuff, software stuff (the second one better probably).
 - Robotics
 - Want to do other stuff
 
-Looking for internship, reach out for inquiries: ericsc@usc.edu
+Looking for internship, reach out for inquiries: https://www.linkedin.com/in/eric-chen-765621252/
