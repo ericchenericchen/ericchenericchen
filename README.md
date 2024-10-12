@@ -8,5 +8,4 @@ I do hardware stuff, software stuff (the second one better probably).
 - Robotics
 - Want to do other stuff
 
-Anyways. Big. Huge. Tremendous, even.
-I'm testing Vercel rn, hopefully it works 🤞!
+Looking for internship, reach out for inquiries: ericsc@usc.edu
