@@ -7,4 +7,4 @@ I do hardware stuff, software stuff (probably better at the second one).
 - Blockchain
 - Robotics
 
-Looking for internship, reach out for inquiries: [https://www.linkedin.com/in/ericchenericchen/](https://www.linkedin.com/in/ericchenericchen/)
+Looking for full time or spring internship roles, reach out for inquiries: [https://www.linkedin.com/in/ericchenericchen/](https://www.linkedin.com/in/ericchenericchen/)
